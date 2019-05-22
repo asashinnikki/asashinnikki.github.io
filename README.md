@@ -1,0 +1,1 @@
+# asashinnikki.github.io
